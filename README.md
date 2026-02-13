@@ -1,1 +1,0 @@
-# Gel-Polymer-Electrolyte-Market
